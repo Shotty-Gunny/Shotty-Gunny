@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Shotty-Gunny
 - 👀 I’m interested in graphic design, gaming and safety/security
-<!--- - 🌱 --->
 - 📫 How to reach me Shotty_gunny#0864
 
 <!---
